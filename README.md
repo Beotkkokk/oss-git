@@ -4,3 +4,5 @@ My email : kimhyo98@naver.com
 My email : 1771349@hansung.ac.kr
 
 My nickname : Beotkkokk
+
+My grade : 3
